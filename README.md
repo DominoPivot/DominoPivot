@@ -1,0 +1,4 @@
+-   💻 Programmer fascinated by languages.
+-   👅 Speaks English, French and Toki Pona.
+-   🏳‍🌈 Proud queer (they/them), shamelessly kinky.
+-   🍕 Not related to a pizzeria chain.
